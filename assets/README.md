@@ -1,0 +1,1 @@
+Mash sticker assets.
